@@ -1,6 +1,6 @@
 # 掌中世界机场官网地址
 
-最新地址：[www.zzsj.pro](https://www.zzsj.pro/#/register?code=hhNBahef)
+最新地址：[zzsj.vip](https://www.zzsj.vin/#/register?code=hhNBahef)
 
 ## 简介
 
